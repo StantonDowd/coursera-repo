@@ -1,6 +1,6 @@
 # *`Mount Fuji`*
 
-Locatied on  [*Honshu island*](https://en.wikipedia.org/wiki/Honshu)
+Located on  [*Honshu island*](https://en.wikipedia.org/wiki/Honshu)
 
 [**Wiki**](https://en.wikipedia.org/wiki/Mount_Fuji)
 
