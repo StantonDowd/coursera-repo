@@ -1,4 +1,4 @@
-## *`Mount Fuji`*
+# *`Mount Fuji`*
 
 Locatied on  [*Honshu island*](https://en.wikipedia.org/wiki/Honshu)
 
